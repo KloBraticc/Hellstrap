@@ -1,3 +1,6 @@
+This code may not be to the most update but it is this code that I worked on 1 year ago sorry guys took so long to get this code again!!
+Everyones allowed to use this code I dont care anyway love yall **Bratic** out!!!!!
+
 > [!CAUTION]
 > The only official places to download Hellstrap are this GitHub repository and [Our Discord server](https://discord.gg/UuxcfqPNnA). Any other websites offering downloads or claiming to be us are not controlled by us.
 
